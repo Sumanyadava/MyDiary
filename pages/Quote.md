@@ -1,0 +1,1 @@
+typography of quote

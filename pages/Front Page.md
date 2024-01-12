@@ -1,6 +1,8 @@
 
+"There is 3 thing i want to tell you "
 
-*Your Year Moto
+
+
 
 *1st Pahe* - your Rule / guide 
 
